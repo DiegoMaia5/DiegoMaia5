@@ -1,4 +1,4 @@
-### Olá ! Eu sou o Diego Maia 🖐️
+### Olá ! Eu sou o Diego Maia  🖐️
 
 
 - 🔭 Atualmente estou trabalhando em Hoje estou trabalhando para a empresa S&I Automação e refrigeração como Assistente Técnico.
