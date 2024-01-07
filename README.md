@@ -4,7 +4,6 @@
 - 🔭 Atualmente estou trabalhando em Hoje estou trabalhando para a empresa S&I Automação e refrigeração como Assistente Técnico.
 - 🌱 Atualmente estou aprendendo Estudando para me tornar um Hacker Ético.
 - 👯 Estou procurando colaborar em, segurança da informação, cibersegurança.
-- 📫 Como entrar em contato comigo diegojesusmaia61@gmail.com
 
 ### Conecte-se comigo:
 
